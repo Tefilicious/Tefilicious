@@ -1,5 +1,5 @@
 # 💫 About Me:
-Welcome Summoner 🫵<br><br>🎮 Currently working on making an RPG game<br>📖 I'm learning Unity, 3DS Max and Blender<br>
+Welcome Summoner 🫵<br>![hippo](https://i.giphy.com/media/v1.Y2lkPTc5MGI3NjExbHhmYXRpZDh0amphenlyOHc5N2phMmNnYm80YnZ1NWF1bHhkajJqayZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/KyIaRm6jYlAGyJ86zH/giphy.gif)<br><br>🎮 Currently working on making an RPG game<br>📖 I'm learning Unity, 3DS Max and Blender<br>
 
 
 ## 🌐 Socials:
